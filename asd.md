@@ -1,0 +1,3 @@
+zxcvbnm
+asdfghjk
+我有2顆蘋果
